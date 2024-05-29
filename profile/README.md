@@ -17,7 +17,7 @@
 
 ## Contáctanos 📞
 
-¡Charlemos sobre tu próximo proyecto! Visítanos en [far.ar](https://f.ar).
+¡Charlemos sobre tu próximo proyecto! Visítanos en [f.ar](https://f.ar).
 
 ## ¿Dónde estamos?
 
